@@ -1,1 +1,1 @@
-Hell Ghana, Good Morning Mr Prsident.
+Hello Ghana and Good Morning Mr President
